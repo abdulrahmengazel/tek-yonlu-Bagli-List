@@ -1,0 +1,2 @@
+# tek-yonlu-Bagli-List
+ 
